@@ -1,2 +1,3 @@
-# Hello-World-
-First day of programming hello world test
+these are the changes are doing 
+Changes 
+Turn and face the strange 
